@@ -64,7 +64,7 @@ One day, quite some time ago, I happened on a photograph of Napoleon's youngest 
 ---
 
 ## Chapter 2
-[French Version](../camera-lucida-fr/#chapitre-2)
+[French Version](camera-lucida-fr/#chapitre-2)
 
 Who could help me? From the first step, that of classification (we must surely classify, verify by samples, if we want to constitute a corpus), Photography evades us. The various distributions we impose upon it are in fact either empirical (Professionals / Amateurs), or rhetorical (Landscapes / Objects/ Portraits / Nudes), or else aesthetic (Realism / Pictorialism), in any case external to the object, without relation to its essence, which can only be (if it exists at all) the New of which it has been the advent; for these classifications might very well be applied to other, older forms of representation. We might say that Photography is unclassifiable. Then I wondered what the source of this disorder might be. The first thing I found was this. What the Photograph reproduces to infinity has occurred only once: the Photograph mechanically repeats what could never be repeated existentially. In the Photograph, the event is never transcended for the sake of something else: the Photograph always leads the corpus I need back to the body I see; it is the absolute Particular, the sovereign Contingency, matte and somehow stupid, the This (this photograph, and not Photography), in short, what Lacan calls the Tuché, the Occasion, the Encounter, the Real, in its indefatigable expression. In order to designate reality,
 
@@ -77,7 +77,7 @@ are technical; in order to "see" the photographic signifier, they are obliged to
 ---
 
 ## Chapter 3
-[French Version](../camera-lucida-fr/#chapitre-3)
+[French Version](camera-lucida-fr/#chapitre-3)
 
 Then I decided that this disorder and this dilemma, revealed by my desire to write on Photography, corresponded to a discomfort I had always suffered from: the uneasiness of being a subject torn between two languages, one expressive, the other critical; and at the heart of this critical language, between several discourses, those of sociology, of semiology, and of psychoanalysis— but that, by ultimate dissatisfaction with all of them, I was bearing witness to the only sure thing that was in me (however naive it might be) : a desperate resistance to any reductive system. For each time, having resorted to any such language to whatever degree, each time I felt it hardening and thereby tending to reduction and reprimand, I would gently leave it and seek elsewhere: I began to speak differently. It was better, once and for all, to make my protestation of singularity into a virtue—to try making what Nietzsche called the "ego's ancient sovereignty" into an heuristic principle. So I resolved to start my inquiry with no more than a few photographs, the ones I was sure existed for me. Nothing to do with a corpus: only some bodies. In this (after all) conventional debate between science and subjectivity, I had arrived at this curious notion: why mightn't there be, somehow, a new science for each object? A mathesis singularis (and no longer universalis)? So I decided to take myself as mediator for all Photography. Starting from a few per-
 
@@ -86,7 +86,7 @@ sonal impulses, I would try to formulate the fundamental feature, the universal 
 ---
 
 ## Chapter 4
-[French Version](../camera-lucida-fr/#chapitre-4)
+[French Version](camera-lucida-fr/#chapitre-4)
 
 So I make myself the measure of photographic "knowledge." What does my body know of Photo­graphy? I observed that a photograph can be the object of three practices (or of three emotions, or of three intentions) : to do, to undergo, to look. The Operator is the Photographer. The Spectator is ourselves, all of us who glance through collections of photographs—in mag­azines and newspapers, in books, albums, archives… And the person or thing photographed is the target, the referent, a kind of little simulacrum, any eidolon emitted by the object, which I should like to call the Spectrum of the Photograph, because  this word retains, through its root, a relation to "spectacle" and adds to it that rather terrible thing which is there in every photograph: the re­turn of the dead.
 One of these practices was barred to me and I was not to investigate it: I am not a photographer, not even an amateur photographer: too impatient for that: I must see right away what I have produced (Polaroid? Fun, but disappointing, except when a great photographer is in­volved). I might suppose that the Operator's emotion (and consequently the essence of Photography-according­-to-the-Photographer) had some relation to the "little
@@ -96,7 +96,7 @@ hole" (stenope) through which he looks, limits, frames, and perspectivizes when 
 ---
 
 ## Chapter 5
-[French Version](../camera-lucida-fr/#chapitre-5)
+[French Version](camera-lucida-fr/#chapitre-5)
 
 It can happen that I am observed without know­ing it, and again I cannot speak of this experience, since I have determined to be guided by the con­sciousness of my feelings. But very often (too often, to my taste) I have been photographed and knew it. Now, once I feel myself observed by the lens, everything changes: I constitute myself in the process of "posing," I instanta­neously make another body for myself, I transform myself in advance into an image. This transformation is an active
 
@@ -118,7 +118,7 @@ Ultimately, what I am seeking in the photograph taken of me (the "intention" acc
 ---
 
 ## Chapter 6
-[French Version](../camera-lucida-fr/#chapitre-6)
+[French Version](camera-lucida-fr/#chapitre-6)
 
 The disorder which from the very first I had observed in Photography–all practices and all subjects mixed up together–I was to rediscover in the photographs of the Spectator whom I was and whom I now wanted to investigate.
 I see photographs everywhere, like everyone else, nowadays; they come from the world to me, without my asking; they are only “images,” their mode of appearance is heterogeneous. Yet, among those which had been selected, evaluated, approved, collected in albums or magazines and which had thereby passed through the filter of culture, I realized that some provoked tiny jubilations, as if they referred to a stilled center, an erotic or lacerating value buried in myself (however harmless the subject may have appeared); and that others, on the contrary, were so indifferent to me that by dint of seeing them multiply, like some weed, I felt a kind of aversion toward them, even of irritation: there are moments when I detest Photographs: what have I to do with Atget's old tree trunks, with Pierre Boucher's nudes, with Germaine Krull's double exposures (to cite only the old names)? Further: I realized that I have never liked all the pictures by any one photographer: the only thing by Stieglitz that delights me (but to ecstasy) is his most famous image ("The Horse-Car Terminal," New York, 1893); a certain picture by Mapplethorpe led me to think I had found "my" photogra-
@@ -132,7 +132,7 @@ I saw clearly that I was concerned here with the impulses of an overready subjec
 ---
 
 ## Chapter 7
-[French Version](../camera-lucida-fr/#chapitre-7)
+[French Version](camera-lucida-fr/#chapitre-7)
 
 I decided then to take as a guide for my new analysis the attraction I felt for certain photographs. For of this attraction, at least, I was certain. What to call it? Fascination? No, this photograph which I pick out and which I love has nothing in common with the shiny point which sways before your eyes and makes your
 
@@ -145,7 +145,7 @@ In this glum desert, suddenly a specific photograph reaches me; it animates me, 
 ---
 
 ## Chapter 8
-[French Version](../camera-lucida-fr/#chapitre-8)
+[French Version](camera-lucida-fr/#chapitre-8)
 
 In this investigation of Photography, I borrowed something from phenomenology's project and something from its language. But it was a vague, casual, even cynical phenomenology, so readily did it agree to distort or to evade its principles according to the whim of my analysis. First of all, I did not escape, or try to escape, from a paradox: on the one hand the desire to give a name to Photography's essence and then to sketch an eidetic science of the Photograph; and on the other the intractable feeling that Photography is essentially (a contradiction in terms) only contingency, singularity, risk: my photographs would always participate, as Lyotard says, in "something or other": is it not the very weakness of Photography, this difficulty in existing which we call banality? Next, my phenomenology agreed to com-
 
@@ -157,7 +157,7 @@ promise with a power, affect; affect was what I didn't want to reduce; being irr
 ---
 
 ## Chapter 9
-[French Version](../camera-lucida-fr/#chapitre-9)
+[French Version](camera-lucida-fr/#chapitre-9)
 
 I was glancing through an illustrated magazine. A photograph made me pause. Nothing very extraordinary: the (photographic) banality  of a rebellion in Nicaragua: a ruined street, two helmeted soldiers on patrol; behind them, two nuns. Did this photograph please me? Interest me? Intrigue me? Not even. Simply, it existed (for me). I understood at once that its existence (its "adventure") derived from the co-presence of two discontinuous elements, heterogeneous in that they did not belong to the same world (no need to proceed to the point of contrast): the soldiers and the nuns. I foresaw a structural rule (conforming to my own observation), and I immediately tried to verify it by inspecting other photographs by the same reporter (the Dutchman Koen Wessing): many of them attracted me because they included this kind of duality which I had just become aware of. Here a mother and daughter sob over the father's arrest (Baudelaire: "the emphatic truth of gesture in the great circumstances of life"), and this happens out in the countryside (where could they have learned the news? for whom are these gestures?). Here, on a torn-up pavement, a child's corpse under a white sheet; parents and friends stand around it, desolate: a banal enough scene, unfortunately, but I noted certain interferences: the corpse's one bare foot, the sheet carried by the weeping mother (why this sheet?), a woman in the background,
 
@@ -169,7 +169,7 @@ probably a friend, holding a handkerchief to her nose. Here again, in a bombed-o
 ---
 
 ## Chapter 10
-[French Version](../camera-lucida-fr/#chapitre-10)
+[French Version](camera-lucida-fr/#chapitre-10)
 
 My rule was plausible enough for me to try to name (as I would need to do) these two ele­ments whose co-presence established, it seemed, the particular interest I took in these photographs.
 The first, obviously, is an extent, it has the extension of a field, which I perceive quite familiarly as a consequence of my knowledge, my culture; this field can be more or less stylized, more or less successful, depending on the photographer's skill or luck, but it always refers to a clas-
@@ -183,7 +183,7 @@ tuated, sometimes even speckled with these sensitive points; precisely, these ma
 ---
 
 ## Chapter 11
-[French Version](../camera-lucida-fr/#chapitre-11)
+[French Version](camera-lucida-fr/#chapitre-11)
 
 Many photographs are, alas, inert under my gaze. But even among those which have some existence in my eyes, most provoke only a general and, so to speak, polite interest: they have no punctum in them: they please or displease me without pricking me: they are invested with no more than studium. The studium is that very wide field of unconcerned desire, of various interest, of inconsequential taste: I like / I don't like. The studium is of the order of liking, not of loving ; it mobilizes a half desire, a demi-volition; it is the same sort of vague, slippery, irresponsible interest one takes in the people, the entertainments, the books, the clothes one finds "all right."
 To recognize the studium is inevitably to encounter the photographer's intentions, to enter into harmony with
@@ -193,7 +193,7 @@ them, to approve or disapprove of them, but always to understand them, to argue 
 ---
 
 ## Chapter 12
-[French Version](../camera-lucida-fr/#chapitre-12)
+[French Version](camera-lucida-fr/#chapitre-12)
 
 Since the Photograph is pure contingency and can be nothing else (it is always something that is represented)–contrary to the text which, by the sudden action of a single word, can shift a sentence from description to reflection–it immediately yields up those "details" which constitute the very raw material of ethnological knowledge. When William Klein
 
@@ -211,7 +211,7 @@ photographs "Mayday, 1959" in Moscow, he teaches me how Russians dress (which af
 ---
 
 ## Chapter 13
-[French Version](../camera-lucida-fr/#chapitre-13)
+[French Version](camera-lucida-fr/#chapitre-13)
 
 The first man who saw the first photograph (if we except Niepce, who made it) must have thought it was a painting: same framing, same perspective. Photography has been, and is still, tormented by the ghost of Painting (Mapplethorpe represents an iris stalk the way an Oriental painter might have done it); it has made Painting, through its copies and contestations, into the absolute, paternal Reference, as if
 
@@ -223,7 +223,7 @@ our mythic denial of an apprehension of death), Photography is a kind of primiti
 ---
 
 ## Chapter 14
-[French Version](../camera-lucida-fr/#chapitre-14)
+[French Version](camera-lucida-fr/#chapitre-14)
 
 I imagine (this is all I can do, since I am not a photographer) that the essential gesture of the Operator is to surprise something or someone (through the little hole of the camera), and that this ges­ture is therefore perfect when it is performed unbe­knownst to the subject being photographed. From this gesture derive all photographs whose principle (or better, whose alibi) is "shock"; for the photographic "shock" (quite different from the punctum) consists less in traumatizing than in revealing what was so well hidden that the actor himself was unaware or unconscious of it. Hence a whole gamut of "surprises" (as they are for me, the Spectator; but for the Photographer, these are so many "performances").
 The first surprise is that of the "rare" (rarity of the referent, of course); a photographer, we are told admir­ingly, has spent four years composing a photographic an­thology of monsters (man with two heads, woman with three breasts, child with a tail, etc.: all smiling). The sec­ond surprise is one habitual to Painting, which has fre­quently reproduced a gesture apprehended at the point in its course where the normal eye cannot arrest it (I have
@@ -236,7 +236,7 @@ acrobat, must defy the laws of probability or even of possibility; at the limit,
   ---
 
 ## Chapter 15
-[French Version](../camera-lucida-fr/#chapitre-15)
+[French Version](camera-lucida-fr/#chapitre-15)
 
 Since every photograph is contingent (and thereby outside of meaning), Photography can­not signify (aim at a generality) except by assuming a mask. It is this word which Calvino correctly uses to designate what makes a face into the product of a society and of its history. As in the portrait of William Casby, photographed by Avedon: the essence of slavery is here laid bare: the mask is the meaning, insofar as it is absolutely pure (as it was in the ancient theater). This is why the great portrait photographers are great mytholo­gists: Nadar (the French bourgeoisie), Sander (the Ger­mans of pre-Nazi Germany), Avedon (New York's "upper crust").
 
@@ -260,7 +260,7 @@ cantile nature, the semiology of Photography is therefore limited to the admirab
 ---
 
 ## Chapter 16
-[French Version](../camera-lucida-fr/#chapitre-16)
+[French Version](camera-lucida-fr/#chapitre-16)
 
 An old house, a shadowy porch, tiles, a crum­bling Arab decoration, a man sitting against the wall, a deserted street, a Mediterranean tree
 (Charles Clifford's "Alhambra"): this old photograph (1854) touches me: it is quite simply there that I should like to live. This desire affects me at a depth and accord­ing to roots which I do not know: warmth of the climate? Mediterranean myth? Apollinism? Defection? Withdrawal? Anonymity? Nobility? Whatever the case (with regard to myself, my motives, my fantasy), I want to live there, en finesse–and the tourist photograph never satisfies that esprit de finesse. For me, photographs of land­scape (urban or country) must be habitable, not visitable.
@@ -273,7 +273,7 @@ This longing to inhabit, if I observe it clearly in myself, is neither oneiric (
 ---
 
 ## Chapter 17
-[French Version](../camera-lucida-fr/#chapitre-17)
+[French Version](camera-lucida-fr/#chapitre-17)
 
 Having thus reviewed the docile interests which certain photographs awaken in me, I deduced that the studium, insofar
 as it is not traversed, lashed, striped by a detail (punctum) which attracts or distresses me, engenders a very widespread type of photograph (the most widespread in the world), which we might call the unary photograph. In generative grammar, a transformation is unary if, through it, a single series is generated by the base: such are the passive, negative, in-
@@ -287,7 +287,7 @@ shifts his close-ups of genitalia from the pornographic to the erotic by photogr
 ---
 
 ## Chapter 18
-[French Version](../camera-lucida-fr/#chapitre-18)
+[French Version](camera-lucida-fr/#chapitre-18)
 
 In this habitually unary space, occasionally (but alas all too rarely) a "detail" attracts me. I feel that its mere presence changes my read­ing, that I am looking at a new photograph, marked in my eyes with a higher value. This "detail" is the punctum.
 It is not possible to posit a rule of connection between the studium and the punctum (when it happens to be there). It is a matter of a co-presence, that is all one can say: the nuns "happened to be there," passing in the background, when Wessing photographed the Nicaraguan soldiers; from the viewpoint of reality (which is perhaps that of the Operator), a whole causality explains the presence of the "detail": the Church implanted in these Latin­-American countries, the nuns allowed to circulate as nurses, etc.; but from my Spectator's viewpoint, the detail is offered by chance and for nothing; the scene is in no way "composed" according to a creative logic; the photo­graph is doubtless dual, but this duality is the motor of no "development," as happens in classical discourse. In order to perceive the punctum, no analysis would be of any use to me (but perhaps memory sometimes would, as we
@@ -297,7 +297,7 @@ shall see): it suffices that the image be large enough, that I do not have to st
 ---
 
 ## Chapter 19
-[French Version](../camera-lucida-fr/#chapitre-19)
+[French Version](camera-lucida-fr/#chapitre-19)
 
 Very often the Punctum is a "detail," i.e., a partial object. Hence, to give examples of punctum is, in a certain fashion, to give myself up.
 Here is a family of American blacks, photographed in 1926 by James Van der Zee. The studium is clear: I am sympathetically interested, as a docile cultural subject, in what the photograph has to say, for it speaks (it is a "good" photograph): it utters respectability, family life, conformism, Sunday best, an effort of social advancement in order to assume the White Man's attributes (an effort touching by reason of its naïveté). The spectacle interests me but does not prick me. What does, strange to say, is the belt worn low by the sister (or daughter)–the "solacing Mammy"–whose arms are crossed behind her back like a schoolgirl, and above all her strapped pumps (Mary Janes–why does this dated fashion touch me? I mean: to what date does it refer me?). This particular punctum arouses great sympathy in me, almost a kind of tenderness. Yet the punctum sows no preference for morality or good taste: the punctum can be ill-bred. William Klein has photographed children of Little Italy in New York
@@ -318,7 +318,7 @@ WILLIAM KLEIN: LITTLE ITALY. NEW YORK, 1954
 ---
 
 ## Chapter 20
-[French Version](../camera-lucida-fr/#chapitre-20)
+[French Version](camera-lucida-fr/#chapitre-20)
 
 Certain details may "prick" me. If they do not, it is doubtless because the photographer has put them there intentionally. In William
 Klein's "Shinohiera, Fighter Painter" (1961), the charac­ter's monstrous head has nothing to say to me because I can see so clearly that it is an artifice of the camera angle. Some soldiers with nuns behind them served as an exam­ple to explain what the punctum was for me (here, quite elementary); but when Bruce Gilden photographs a nun and some drag queens together (New Orleans, 1973), the deliberate (not to say, rhetorical) contrast produces no effect on me, except perhaps one of irritation. Hence the detail which interests me is not, or at least is not strictly, intentional, and probably must not be so; it occurs in the field of the photographed thing like a supplement that is at once inevitable and delightful; it does not necessarily attest to the photographer's art; it says only that the photographer was there, or else, still more simply, that he could not not photograph the partial object at the same time as the total object (how could Kertész have "separated" the dirt road from the violinist walking on it?). The Photographer's "second sight" does not consist in "seeing" but in being there. And above all, imitating Orpheus, he must not turn back to look at what he is leading–what he is giving to me!
@@ -333,7 +333,7 @@ ABONY, HUNGARY, 1921
 ---
 
 ## Chapter 21
-[French Version](../camera-lucida-fr/#chapitre-21)
+[French Version](camera-lucida-fr/#chapitre-21)
 
 A detail overwhelms the entirety of my read­ing; it is an intense mutation of my interest, a fulguration. By the mark of something, the photograph is no longer "anything whatever." This something has triggered me, has provoked a tiny shock, a satori, the passage of a void (it is of no importance that its referent is insignificant). A strange thing: the virtuous gesture which seizes upon "docile" photographs (those invested by a simple studium) is an idle gesture (to leaf through, to glance quickly and desultorily, to linger, then to hurry on); on the contrary, the reading of the punctum (of the pricked photograph, so to speak) is at once brief and active. A trick of vocabulary: we say "to develop a photograph"; but what the chemical action develops is undevelopable, an essence (of a wound), what cannot be transformed but only repeated under the instances of insistence (of the insistent gaze). This brings the Photograph (certain photographs) close to the Haiku. For the notation of a haiku, too, is undevelopable: everything is given, without provoking the desire for or even the possibility of a rhetorical expansion. In both cases we might (we must) speak of an intense immobility: linked to a detail (to a detonator), an explosion makes a little star on the pane of the text or of the photograph: neither the Haiku nor the Photograph makes us "dream."
 In Ombredane's experiment, the blacks see on his
@@ -356,7 +356,7 @@ screen only the chicken crossing one corner of the village square. I too, in the
 ---
 
 ## Chapter 22
-[French Version](../camera-lucida-fr/#chapitre-22)
+[French Version](camera-lucida-fr/#chapitre-22)
 
 The studium is ultimately always coded, the punctum is not (I trust I am not using these words abusively). Nadar, in his time (1882), photographed Savorgnan de Brazza between two young blacks dressed as French sailors; one of the two boys, oddly, has rested his hand on Brazza's thigh; this incon­gruous gesture is bound to arrest my gaze, to constitute a punctum. And yet it is not one, for I immediately code the posture, whether I want to or not, as "aberrant" (for me, the punctum is the other boy's crossed arms). What I can name cannot really prick me. The incapacity to name is a good symptom of disturbance. Mapplethorpe has photographed Robert  Wilson and Philip Glass. Wilson holds me, though I cannot say why, i.e., say where: is it the eyes, the skin, the position of the hands, the track shoes? The effect is certain but unlocatable, it does not find its sign, its
 
@@ -378,7 +378,7 @@ silent (there are blustering photographs, and I don't like them): this is not a 
 ---
 
 ## Chapter 23
-[French Version](../camera-lucida-fr/#chapitre-23)
+[French Version](camera-lucida-fr/#chapitre-23)
 
 Last thing about the punctum: whether or not it is triggered, it is an addition: it is what I add to the photograph and what is nonetheless already there. To Lewis Hine's retarded children, I add nothing with regard to the degenerescence of the profile: the code expresses this before I do, takes my place, does not allow me to speak; what I add–and what, of course, is already in the image–is the collar, the bandage. Do I add to the images in movies? I don't think so; I don't have time: in front of the screen, I am not free to shut my eyes; otherwise, opening them again, I would not discover the same image; I am constrained to a continuous voracity; a host of other qualities, but not pensiveness; whence the interest, for me, of the photogram.
 Yet the cinema has a power which at first glance the Photograph does not have: the screen (as Bazin has re­ marked) is not a frame but a hideout; the man or woman
@@ -400,7 +400,7 @@ ents the sexual organs, making them into a motionless object (a fetish), flatter
 ---
 
 ## Chapter 24
-[French Version](../camera-lucida-fr/#chapitre-24)
+[French Version](camera-lucida-fr/#chapitre-24)
 
 Proceeding this way from photograph to photograph (to tell the truth, all of them public ones, up to now), I had perhaps learned how my desire worked, but I had not discovered the nature (the eidos) of Photography. I had to grant that my pleasure was an imperfect mediator, and that a subjectivity reduced to its hedonist project could not recognize the universal. I would have to descend deeper into myself to find the evidence of Photography, that thing which is seen by anyone looking at a photograph and which distinguishes it in his eyes from any other image. I would have to make my recantation, my palinode.
 
@@ -411,7 +411,7 @@ Proceeding this way from photograph to photograph (to tell the truth, all of the
 ---
 
 ## Chapter 25
-[French Version](../camera-lucida-fr/#chapitre-25)
+[French Version](camera-lucida-fr/#chapitre-25)
 
 Now, one November evening shortly after my mother's death, I was going  through some photographs. I had no hope of "finding" her, I expected nothing from these "photographs of a being before which one recalls less of that being than by merely thinking of him or her" (Proust). I had acknowledged that fatality, one of the most agonizing features of mourn­ing, which decreed that however often I might consult such images, I could never recall her features (summon them up as a totality). No, what I wanted–as Valery wanted, after his mother's death–was "to write a little compilation about her, just for myself" (perhaps I shall write it one day, so that, printed, her memory will last at least the time of my own notoriety). Further, I could not even say about these photographs, if we except the one I had already published (which shows my mother as a young woman on a beach of Les Landes, and in which I "recognized" her gait, her health, her glow–but not her face, which is too far away), I could not even say that I loved them: I was not sitting down to contemplate them, I was not engulfing myself in them. I was sorting them, but
 
@@ -420,7 +420,7 @@ none seemed to me really "right": neither as a photo­graphic performance nor as
 ---
 
 ## Chapter 26
-[French Version](../camera-lucida-fr/#chapitre-26)
+[French Version](camera-lucida-fr/#chapitre-26)
 
 With regard to many of these photographs, it was History which  separated me from them. Is History not simply that time when we were
 not born? I could read my nonexistence in the clothes my mother had worn before I can remember her. There is a kind of stupefaction in seeing a familiar being dressed differently. Here, around 1913, is my mother dressed up–hat with a feather, gloves, delicate linen at wrists and throat, her "chic" belied by the sweetness and simplicity of her expression. This is the only time I have seen her like this, caught in a History (of tastes, fashions, fabrics): my attention is distracted from her by accessories which have perished; for clothing is perishable, it makes a sec­ond grave for the loved being. In order to "find" my mother, fugitively alas, and without ever being able to hold on to this resurrection for long, I must, much later, discover in several photographs the objects she kept on her dressing table, an ivory powder box (I loved the sound of its lid), a cut-crystal flagon, or else a low chair, which is now near my own bed, or again, the raffia panels she arranged above the divan, the large bags she loved
@@ -431,7 +431,7 @@ Thus the life of someone whose existence has somewhat preceded our own encloses 
 ---
 
 ## Chapter 27
-[French Version](../camera-lucida-fr/#chapitre-27)
+[French Version](camera-lucida-fr/#chapitre-27)
 
 And here the essential question first appeared: did I recognize her?
 According to these photographs, sometimes I recognized a region of her face, a certain relation of nose and forehead, the movement of her arms, her hands. I never recognized her except in
@@ -445,7 +445,7 @@ each of these photographs manifested the very feeling she must have experienced 
 ---
 
 ## Chapter 28
-[French Version](../camera-lucida-fr/#chapitre-28)
+[French Version](camera-lucida-fr/#chapitre-28)
 
 There I was, alone in the apartment where she had died, looking at  these pictures of my mother, one by one, under the lamp, gradually moving back in time with her, looking for the truth of the face I had loved. And I found it.
 The photograph was very old. The corners were blunted from having been pasted into an album, the sepia print had faded, and the picture just managed to show two children standing together at the end of a little wooden bridge in a glassed-in conservatory, what was called a Winter Garden in those days. My mother was five at the time (1898), her brother seven. He was leaning against the bridge railing, along which he had extended one arm; she, shorter than he, was standing a little back, facing the camera; you could tell that the photographer had said, "Step forward a little so we can see you"; she was holding
@@ -466,7 +466,7 @@ cal, provoking only her identity, not  her truth; but the Winter Garden Photogra
 ---
 
 ## Chapter 29
-[French Version](../camera-lucida-fr/#chapitre-29)
+[French Version](camera-lucida-fr/#chapitre-29)
 
 Nor could I omit this from my reflection: that I had discovered this photograph by moving back through Time. The Greeks entered into
 Death backward: what they had before them was their past. In the same way I worked back through a life, not my own, but the life of someone I love. Starting from her latest image, taken the summer before her death (so tired, so noble, sitting in front of the door of our house, sur­rounded by my friends), I arrived, traversing three­-quarters of a century, at the image of a child: I stare intensely at the Sovereign Good of childhood, of the mother, of the mother-as-child. Of course I was then los­ing her twice over, in her final fatigue and in her first photograph, for me the last; but it was also at this moment that everything turned around and I discovered her as into herself…(…eternity changes her, to complete Mallarmé's verse).
@@ -478,7 +478,7 @@ That is what I read in the Winter Garden Photograph.
 ---
 
 ## Chapter 30
-[French Version](../camera-lucida-fr/#chapitre-30)
+[French Version](camera-lucida-fr/#chapitre-30)
 
 Something like an essence of the Photograph floated in this particular picture. I therefore decided to "derive" all Photography (its "na­ture") from the only photograph which assuredly existed for me, and to take it somehow as a guide for my last investigation. All the world's photographs formed a Labyrinth. I knew that at the center of this Labyrinth I would find nothing but this sole picture, fulfilling Nietzsche's prophecy: "A labyrinthine man never seeks the truth, but only his Ariadne." The Winter Garden Pho­tograph was my Ariadne, not because it would help me discover a secret thing (monster or treasure), but because it would tell me what constituted that thread which drew me toward Photography. I had understood that henceforth I must interrogate the evidence of Photography, not from the viewpoint of pleasure, but in relation to what we romantically call love and death.
 (I cannot reproduce the Winter Garden Photograph. It exists only for me. For you, it would be nothing but an indifferent picture, one of the thousand manifestations of the "ordinary"; it cannot in any way constitute the visible object of a science; it cannot establish an objectivity, in the positive sense of the term; at most it would interest your studium: period, clothes, photogeny; but in it, for you, no wound.)
@@ -486,7 +486,7 @@ Something like an essence of the Photograph floated in this particular picture. 
 ---
 
 ## Chapter 31
-[French Version](../camera-lucida-fr/#chapitre-31)
+[French Version](camera-lucida-fr/#chapitre-31)
 
 From the beginning, I had determined on a principle for myself: never to reduce myself­-as-subject, confronting certain photographs, to the disincarnated, disaffected socius which science is concerned with. This principle obliged me to "forget" two institutions: the Family, the Mother.
 An unknown person has written me: "I hear you are preparing an album of family photographs" (rumor's ex­travagant progress). No: neither album nor family. For a long time, the family, for me, was my mother and, at my side, my brother; beyond that, nothing (except the mem­ory of grandparents); no "cousin," that unit so necessary to the constitution of the family group. Besides, how op­posed I am to that scientific way of treating the family as if it were uniquely a fabric of constraints and rites: either we code it as a group of immediate allegiances or else we make it into a knot of conflicts and repressions. As if our experts cannot conceive that there are families "whose members love one another."
@@ -497,7 +497,7 @@ making possible the representation of the maternal fem­inine, transcended the r
 ---
 
 ## Chapter 32
-[French Version](../camera-lucida-fr/#chapitre-32)
+[French Version](camera-lucida-fr/#chapitre-32)
 
 What I had noted at the beginning, in a free and easy manner, under cover of method, i.e., that every photograph is somehow co-natural with its referent, I was rediscovering, overwhelmed by the truth of the image. Henceforth I would have to consent to combine two voices: the voice of banality (to say what everyone sees and knows) and the voice of singularity (to replenish such banality with all the élan of an emotion which belonged only to myself). It was as if I were seek­ing the nature of a verb which had no infinitive, only tense and mode.
 First of all I had to conceive, and therefore if possible express properly (even if it is a simple thing) how Pho­tography's Referent is not the same as the referent of other systems of representation. I call "photographic referent" not the optionally real thing to which an image or a sign refers but the necessarily real thing which has been placed before the lens, without which there would be no photograph. Painting can feign reality without having seen it. Discourse combines signs which have referents, of course, but these referents can be and are most often "chimeras." Contrary to these imitations, in Photography I can never deny that the thing has been there. There is a superimposition here: of reality and of the past. And since this constraint exists only for Photography, we must consider it, by reduction, as the very essence, the noeme of
@@ -509,7 +509,7 @@ In the daily flood of photographs, in the thousand forms of interest they seem t
 ---
 
 ## Chapter 33
-[French Version](../camera-lucida-fr/#chapitre-33)
+[French Version](camera-lucida-fr/#chapitre-33)
 
 I might put this differently: what founds the nature of Photography is the pose. The phys­ical duration of this pose is of little conse­quence; even in the interval of a millionth of a second (Edgerton's drop of milk) there has still been a pose, for the pose is not, here, the attitude of the target or even a technique of the Operator, but the term of an "intention" of reading: looking at a photograph, I inevitably include in my scrutiny the thought of that instant, however brief, in which a real thing happened to be motionless in front of the eye. I project the present photograph's immobility upon the past shot, and it is this arrest which constitutes the pose. This explains why the Photograph's noeme deteriorates when this Photograph is animated and becomes cinema: in the Photograph, something has posed in front of the tiny hole and has remained there forever (that is my feeling); but in cinema, something has passed in front of this same tiny hole: the pose is swept away and denied by the continuous series of images: it is a different phenomenology, and therefore a different art which begins here, though derived from the first one.
 In Photography, the presence of the thing (at a certain past moment) is never metaphoric; and in the case of animated beings, their life as well; except in the case of photographing corpses; and even so: if the photograph then becomes horrible, it is because it certifies, so to speak,
@@ -521,7 +521,7 @@ which is in question–a proof no longer merely induced: the proof-according-to-
 
 ---
 ## Chapter 34
-[French Version](../camera-lucida-fr/#chapitre-34)
+[French Version](camera-lucida-fr/#chapitre-34)
 
 It is often said that it was the painters who in­vented Photography (by bequeathing it their framing, the Albertian perspective, and the optic of the camera obscura). I say: no, it was the chemists. For the noeme "That-has-been" was possible only on the day when a scientific circumstance (the discovery that silver halogens were sensitive to light) made it possible to recover and print directly the luminous rays emitted by a variously lighted object. The photograph is literally an emanation of the referent. From a real body, which was there, proceed radiations which ultimately touch me, who am here; the duration of the transmission is insignificant; the photograph of the missing being, as Sontag says, will
 
@@ -532,7 +532,7 @@ It seems that in Latin "photograph" would be said "imago lucis opera expressa"; 
 
 ---
 ## Chapter 35
-[French Version](../camera-lucida-fr/#chapitre-35)
+[French Version](camera-lucida-fr/#chapitre-35)
 
 The Photograph does not call up the past (nothing Proustian in a photograph). The effect it produces upon me is not to restore what has been abolished (by time, by distance) but to attest that what I see has indeed existed. Now, this is a strictly scandalous effect. Always the Photograph astonishes me, with an astonishment which endures and renews itself, inexhaustibly. Perhaps this astonishment, this persistence reaches down into the religious substance out of which I am molded; nothing for it: Photography has something to do with resurrection: might we not say of it what the Byzantines said of the image of Christ which impregnated St. Veronica's napkin: that it was not made by the hand of man, acheiropoietos?
 Here are some Polish soldiers resting in a field (Ker­tész, 1915); nothing extraordinary, except this, which no realist painting would give me, that they were there; what I see is not a memory, an imagination, a reconstitution, a piece of Maya, such as art lavishes upon us, but reality in a past state: at once the past and the real. What the Photograph feeds my mind on (though my mind is never satiated by it), by a brief action whose shock cannot drift
@@ -549,7 +549,7 @@ stars, time, life, infinity, etc. It is this kind of question that Photography r
 
 ---
 ## Chapter 36
-[French Version](../camera-lucida-fr/#chapitre-36)
+[French Version](camera-lucida-fr/#chapitre-36)
 
 The Photograph does not necessarily say what is no longer, but only and for certain what has been. This distinction is decisive. In front of a photograph, our consciousness does not necessarily take the nostalgic path of memory (how many photographs are outside of individual time), but for every photograph existing in the world, the path of certainty: the Photograph's essence is to ratify what it represents. One day I received from a photographer a picture of myself which I could not remember being taken, for all my efforts; I inspected the tie, the sweater, to discover in what circumstances I had worn them; to no avail. And yet, because it was a photograph I could not deny that I had been there (even if I did not know where). This distortion between certainty and oblivion gave me a kind of vertigo, something of a "detective" anguish (the theme of Blow-Up was not far off); I went to the photographer's show as to a police investigation, to learn at last what I no longer knew about myself.
 No writing can give me this certainty. It is the misfortune (but also perhaps the voluptuous pleasure) of language not to be able to authenticate itself. The noeme
@@ -568,7 +568,7 @@ It is precisely because the Photograph is an anthro­pologically new object that
 ---
 
 ## Chapter 37
-[French Version](../camera-lucida-fr/#chapitre-37)
+[French Version](camera-lucida-fr/#chapitre-37)
 
 All the authors concur, Sartre says, in remarking on the poverty of the images which ac­company the reading of a novel: if this novel "takes" me properly, no mental image. To reading's Dearth-of-Image corresponds the Photograph's Totality­-of-lmage; not only because it is already an image in itself, but because this very special image gives itself out as complete–integral, we might say, playing on the word. The photographic image is full, crammed: no room, nothing can be added to it.
 In the cinema, whose raw material is photographic, the image does not, however, have this completeness (which is fortunate for the cinema). Why? Because the photograph, taken in flux, is impelled, ceaselessly drawn toward other views; in the cinema, no doubt, there is always a photographic referent, but this referent shifts, it does not make a claim in favor of its reality, it does not protest its former existence; it does not cling to me: it is not a specter. Like the real world, the filmic world is sustained by the presumption that, as Husserl says, "the experience will constantly continue to flow by in the same constitu-
@@ -581,7 +581,7 @@ In the Photograph, Time's immobilization assumes only an excessive, monstrous mo
 ---
 
 ## Chapter 38
-[French Version](../camera-lucida-fr/#chapitre-38)
+[French Version](camera-lucida-fr/#chapitre-38)
 All those young photographers  who are at work in the world, determined upon the capture of actuality, do not know that they are agents of Death. This is the way in which our time assumes Death: with the denying alibi of the distractedly "alive," of which the Photographer is in a sense the professional. For Pho­tography must have some historical relation with what Edgar Morin calls the "crisis of death" beginning in the second half of the nineteenth century; for my part I should prefer that instead of constantly relocating the ad­vent of Photography in its social and economic context, we should also inquire as to the anthropological place of Death and of the new image. For Death must be some­where in a society; if it is no longer (or less intensely) in religion, it must be elsewhere; perhaps in this image which produces Death while trying to preserve life. Contem­porary with the withdrawal of rites, Photography may correspond to the intrusion, in our modern society, of an asymbolic Death, outside of religion, outside of ritual, a kind of abrupt dive into literal Death. Life / Death: the paradigm is reduced to a simple click, the one separating the initial pose from the final print.
 With the Photograph, we enter into flat Death. One day, leaving one of my classes, someone said to me with disdain: "You talk about Death very flatly.”––As if the horror of Death were not precisely its platitude! The hor-
 
@@ -593,7 +593,7 @@ What is it that will be done away with, along with this photograph which yellows
 ---
 
 ## Chapter 39
-[French Version](../camera-lucida-fr/#chapitre-39)
+[French Version](camera-lucida-fr/#chapitre-39)
 At the time (at the beginning of this book: already far away) when I was inquiring into my attachment to certain photographs, I thought I could distinguish a field of cultural interest (the stud­ium) from that unexpected flash which sometimes crosses
 
 "He is dead and he is going to die…"
@@ -607,7 +607,7 @@ me to experience this vertigo of time defeated. In 1850, August Salzmann photogr
 ---
 
 ## Chapter 40
-[French Version](../camera-lucida-fr/#chapitre-40)
+[French Version](camera-lucida-fr/#chapitre-40)
 It is because each photograph always contains this imperious sign of my future death that each one, however attached it seems to be to the excited world of the living, challenges each of us, one by one, outside of any generality (but not outside of any transcendence). Further, photographs, except for an em­barrassed ceremonial of a few boring evenings, are looked at when one is alone. I am uncomfortable during the pri­vate projection of a film (not enough of a public, not enough anonymity), but I need to be alone with the pho­tographs I am looking at. Toward the end of the Middle Ages, certain believers substituted for collective reading or collective	prayer	an individual, under-the-breath prayer; interiorized and meditative (devotio  moderna). Such, it seems to me, is the regime of spectatio. The reading of public photographs is always, at bottom, a private reading. This is obvious for old ("historical") photo-
 
 graphs, in which I read a period contemporary with my youth, or with my mother, or beyond, with my grand­parents, and into which I project a troubling being, that of the lineage of which I am the final term. But this is also true of the photographs which at first glance have no link, even a metonymic one, with my existence (for instance, all journalistic photographs). Each photograph is read as the private appearance of its referent: the age of Photog­raphy corresponds precisely to the explosion of the private into the public, or rather into the creation of a new social value, which is the publicity of the private: the private is consumed as such, publicly (the incessant aggressions of the Press against the privacy of stars and the growing difficulties of legislation to govern them testify to this movement). But since the private is not only one of our goods (falling under the historical laws of property), since it is also the absolutely precious, inalienable site where my image is free (free to abolish itself), as it is the condition of an interiority which I believe is identified with my truth, or, if you like, with the Intractable of which I consist, I must, by a necessary resistance, recon­stitute the division of public and private: I want to utter interiority without yielding intimacy. I experience the Photograph and the world in which it participates according to two regions: on one side the Images, on the other my photographs; on one side, unconcern, shifting, noise, the inessential (even if I am abusively deafened by it), on the other the burning, the wounded.
@@ -617,7 +617,7 @@ mastery of a profession. But in the field of photographic practice, it is the am
 ---
 
 ## Chapter 41
-[French Version](../camera-lucida-fr/#chapitre-41)
+[French Version](camera-lucida-fr/#chapitre-41)
 If I like a photograph, if it disturbs me, I linger over it. What am I doing, during the whole time I remain with it? I look at it, I
 scrutinize it, as if I wanted to know more about the thing or the person it represents. Lost in the depths of the Win­ter Garden, my mother's face is vague, faded. In a first impulse, I exclaimed: "There she is! She's really there! At last, there she is!" Now I claim to know––and to be able to say adequately––why, in what she consists. I want to outline the loved face by thought, to make it into the unique field of an intense observation; I want to enlarge this face in order to see it better, to understand it better, to know its truth (and sometimes, naively, I confide this task to a laboratory). I believe that by enlarging the detail "in series" (each shot engendering smaller details than at the preceding stage), I will finally reach my mother's very being. What Marey and Muybridge have done as operators I myself want to do as spectator: I decompose, I enlarge, and, so to speak, I retard, in order to have time to know at last. The Photograph justifies this desire, even if it does not satisfy it: I can have the fond hope of discovering truth only because Photography's noeme is
 
@@ -625,7 +625,7 @@ precisely that-has-been, and because I live in the illusion that it suffices to 
 ---
 
 ## Chapter 42
-[French Version](../camera-lucida-fr/#chapitre-42)
+[French Version](camera-lucida-fr/#chapitre-42)
 If my efforts are painful, if I am anguished, it is because sometimes I get closer, I am burning: in a certain photograph I believe I per­ceive the lineaments of truth. This is what happens when I judge a certain photograph "a likeness." Yet on thinking it over, I must ask myself: Who is like what? Resemblance is a conformity, but to what? to an identity. Now this identity is imprecise, even imaginary, to the point where I
 
 “Marceline Desbordes-Valmore
@@ -639,7 +639,7 @@ it." Likeness leaves me unsatisfied and somehow skeptical (certainly this is the
 ---
 
 ## Chapter 43
-[French Version](../camera-lucida-fr/#chapitre-43)
+[French Version](camera-lucida-fr/#chapitre-43)
 But more insidious, more penetrating than likeness: the Photograph sometimes makes ap­pear what we never see in a real face (or in a
 face reflected in a mirror): a genetic feature, the frag­ment of oneself or of a relative which comes from some ancestor. In a certain photograph, I have my father's sis­ter's "look." The Photograph gives a little truth, on condi­tion that it parcels out the body. But this truth is not that of the individual, who remains irreducible; it is the truth of lineage. Sometimes I am mistaken, or at least I hesi­tate: a medallion represents a young woman and her child: surely that is my mother and myself? But no, it is her mother and her son (my uncle); I don't know this so much from the clothes (the etherealized photograph does not show much of them) as from the structure of the face; between my grandmother's face and my mother's there has been the incidence, the flash of the husband, the father, which has refashioned the countenance, and so on down to me (the baby? nothing more neutral). In the
 
@@ -651,7 +651,7 @@ Lineage reveals an identity stronger, more interesting than legal status––mo
 ---
 
 ## Chapter 44
-[French Version](../camera-lucida-fr/#chapitre-44)
+[French Version](camera-lucida-fr/#chapitre-44)
 I must therefore submit to this law: I cannot penetrate, cannot reach into the Photograph. I can only sweep it with my glance, like a smooth surface. The Photograph is flat, platitudinous in the true sense of the word, that is what I must acknowledge. It is a mistake to associate Photography, by reason of its technical origins, with the notion of a dark passage ( camera obscura). It is camera lucida that we should say (such was the name of that apparatus, anterior to Photography, which permitted drawing an object through a prism, one eye on the model, the other on the paper); for, from the eye's viewpoint, "the essence of the image is to be altogether outside, without intimacy, and yet more inaccessible and mysterious than the thought of the innermost being; without signification, yet summoning up the depth of any possible meaning; unrevealed yet manifest, having that absence-as-presence which constitutes the lure and the fascination of the Sirens" (Blanchot).
 If the Photograph cannot be penetrated, it is because of its evidential power. In the image, as Sartre says, the object yields itself wholly, and our vision of it is certain––contrary to the text or to other perceptions which give me the object in a vague, arguable manner, and therefore incite me to suspicions as to what I think I am seeing. This certitude is sovereign because I have the leisure to observe the photograph with intensity; but also, however long I
 
@@ -659,7 +659,7 @@ extend this observation, it teaches me nothing. It is pre­cisely in this arrest
 ---
 
 ## Chapter 45
-[French Version](../camera-lucida-fr/#chapitre-45)
+[French Version](camera-lucida-fr/#chapitre-45)
 Yet as soon as it is a matter of being––and no longer of a thing––the Photograph's evidence has an entirely different stake. Seeing a bottle, an iris stalk, a chicken, a palace photographed involves only reality. But a body, a face, and what is more, fre­quently, the body and face of a beloved person? Since Photography (this is its noeme) authenticates the existence of a certain being, I want to discover that being in the photograph completely, i.e., in its essence, "as into itself…” beyond simple resemblance, whether legal or hereditary. Here the Photograph's platitude becomes more painful, for it can correspond to my fond desire only by something inexpressible: evident (this is the law of the Photograph) yet improbable (I cannot prove it). This something is what I call the air (the expression, the look).
 The air of a face is unanalyzable (once I can decompose, I prove or I reject, in short I doubt, I deviate from the Photograph, which is by nature totally evidence: evi-
 
