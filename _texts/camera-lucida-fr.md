@@ -65,7 +65,7 @@ En  hommage
 ---
 
 ## Chapitre 1
-[Version anglaise](/camera-lucida-en/#chapter-1)
+[Version anglaise](camera-lucida-en/#chapter-1)
 
 Un  jour,  il  y  a  bien  longtemps, je  tombai sur  une  photographie  du  dernier  frere  de Napoleon,  Jerome  ( 1852).  Je  me  dis  alors, avec un etonnement que depuis je n' ai jamais pu reduire  : « Je vois les yeux qui ont vu l'Em pereur.  ))  J e  parlais  parfois  de  cet  etonne ment,  mais  comme  personne  ne  semblait  le partager'  ni  meme  le  comprendre  (la vie  est ainsi faite a coups de petites solitudes),je l'ou bliai.  Mon  interet  pour  la  Photographie  prit un tour plus culturel. Je decretai que j'aimais la  Photo  contre  le  cinema,  dont je n 'arrivais pas  cependant  a la  separer.  Cette  question insistait.  J'etais  saisi  a l'egard  de  la  Photo graphie d'un desir « ontologique »  : je voulais a tout  prix  savoir  ce  qu'elle  etait  « en  SOI  »,
 
