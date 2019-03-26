@@ -57,7 +57,7 @@ toc:
 ---
 
 ## Chapter 1
-[French Version](../camera-lucida-fr/#chapitre-1)
+[French Version](/camera-lucida-fr/#chapitre-1)
 
 One day, quite some time ago, I happened on a photograph of Napoleon's youngest brother, Jerome, taken in 1852. And I realized then, with an amazement I have not been able to lessen since: "I am looking at eyes that looked at the Emperor." Sometimes I would mention this amazement, but since no one seemed to share it, nor even to understand it (life consists of these little touches of solitude), I forgot about it. My interest in Photography took a more cultural turn. I decided I liked Photography in opposition to the Cinema, from which I nonetheless failed to separate it. This question grew insistent. I was overcome by an "ontological" desire: I wanted to learn at all costs what Photography was "in itself," by what essential feature it was to be distinguished from the community of images. Such a desire really meant that beyond the evidence provided by technology and usage, and despite its tremendous contemporary expansion, I wasn't sure that Photography existed, that it had a "genius" of its own.
 
