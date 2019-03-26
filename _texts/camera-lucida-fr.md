@@ -63,6 +63,7 @@ CAHIERS  DU  CINEMA GALLIMARD Collection  dirigee
 En  hommage
 
 ---
+
 ## Chapitre 1
 [Version anglaise](../camera-lucida-en/#chapter-1)
 
@@ -71,6 +72,7 @@ Un  jour,  il  y  a  bien  longtemps, je  tombai sur  une  photographie  du  der
 par quel trait essentiel elle se distinguait de la communaute  des images.  Un  tel  desir voulait dire  qu' au  fond,  en  de hors  des  evidences venues  de  la  technique  et  de  l'usage  et  en depit  de  sa formidable  expansion  contempo raine, je n 'etais  pas  sur que la Photographic existat, qu' elle disposat d 'un «  genie » propre.
 
 ---
+
 ## Chapitre 2
 [Version anglaise](../camera-lucida-en/#chapter-2)
 
@@ -89,6 +91,7 @@ victimes de  cette difficulte.  Les uns sont tech niques ;  pour  «  voir 11  l
 destine a  renflouer la Famille, etc.  » Je persis tais  cependant ;  une  autre voix,  la plus forte, me  poussait  a  nier  le  commentaire  sociolo gique ;  face  a  certaines photos, je me  voulais sauvage,  sans  culture.  J'allais  ainsi,  n'osant reduire  les  photos  innombrables  du  monde, non  plus  qu'etendre  quelques-unes  des miennes a toute la Photographie  : bref, je me trouvais  clans  une impasse et,  si je puis dire, «  scientifiquement »  seul et demuni.
 
 ---
+
 ## Chapitre 3
 [Version anglaise](../camera-lucida-en/#chapter-3)
 
@@ -99,6 +102,7 @@ Jyse  - mais  que,  par  l'insatisfaction  ou  je me  trouvais  finalement  des 
 me prendre pour mediateur de toute la Photo graphie  : je tenterais de formuler' a partir de quelques mouvements personnels, le trait fon damental, l'universel sans lequel il  n 'y aurait pas de Photographie.
 
 ---
+
 ## Chapitre 4
 [Version anglaise](../camera-lucida-en/#chapter-4)
 
@@ -109,6 +113,7 @@ Photographie,  parce  que  ce  mot garde a tra vers sa racine un rapport au «  
 tiellement,  si  l'on  peut  dire,  de  la revelation chimique de I' obj et ( dont je re;ois,  a  retarde ment,  les  rayons),  et que la Photographie de !'Operator  etait liee  au  contraire  a  la vision decoupee par le trou de  serrure de la camera obscura. Mais de cette emotion-la (OU  de cette essence)  je  ne  pouvais  parler,  ne  I' ayant jamais  connue;  je  ne  pouvais  rejoindre  la cohorte de  ceux (les plus nombreux) qui trai tent  de  la  Photo-selon-le-Photographe.  Je n, avais  a  ma  disposition  que  deux  expe riences  :  celle  du  sujet  regarde  et  celle  du sujet  regardant.
 
 ---
+
 ## Chapitre 5
 [Version anglaise](../camera-lucida-en/#chapter-5)
 
@@ -133,6 +138,7 @@ livre  voulaient  donne-r  de  mon  langage. (La  «  vie  privee  »  n'est  ri
 montres  - et je me rappelle qu'a l'origine, le materiel  photographique  relevait  des  tech niques  de  l' ebenisterie  et de  la mecanique  de precision  :  les  appareils,  au fond,  etaient des horloges  a  voir,  et  peut-etre  en  moi,  quel qu 'un  de  tres  ancien  en tend  encore  clans l'appareil  photographique  le  bruit  vivant  du bois.
 
 ---
+
 ## Chapitre 6
 [Version anglaise](../camera-lucida-en/#chapter-6)
 
@@ -147,6 +153,7 @@ trouve  «  mon »  photographe;  mais  non,  je n'aime pas tout Mapplethorpe.  
 reduise  ni  ne m'ecrase.  II  fallait  done y  aller vo1r.
 
 ---
+
 ## Chapitre 7
 [Version anglaise](../camera-lucida-en/#chapter-7)
 
@@ -159,6 +166,7 @@ sans  que je les  pose.  On peut d'ailleurs trou ver des cas ou la photographie 
 
 
 ---
+
 ## Chapitre 8
 [Version anglaise](../camera-lucida-en/#chapter-8)
 
@@ -169,6 +177,7 @@ l'infirmite  meme  de  la  Photographie,  que cette  difficulte  a  exister'  qu
 (d'une  Logique), je m'arretais,  gardant  avec moi, comme un tresor, mon desir ou mon cha grin ; l' essence prevue de la Photo ne pouvait, dans mon esprit, se separer du ((  pathetique )) dont  elle  est  f aite,  des  le  premier  regard. J' etais  semblable  a cet  ami  qui  ne  s' etait tourne vers la Photo que parce qu' elle lui per mettait  de  photographier  son  fils.  Comme Spectator,  je  ne  m'interessais  a la  Photo graphie que par  sentiment» ;je voulais l'ap profondir,  non  comme  une  question  ( un theme),  mais comme une blessure  : je vois, je sens,  done je remarque, je regarde et je pense.
 
 ---
+
 ## Chapitre 9
 [Version anglaise](../camera-lucida-en/#chapter-9)
 
@@ -183,6 +192,7 @@ deux  bonnes  sreurs.  Cette photo me  plaisait? M'interessait? M'intriguait? Pa
 scene,  helas,  banale,  mais je  remarquai  des disturbances  :  le  pied  dechausse  du  cadavre, le  linge  porte  en pleurant par la mere (pour quoi  ce  linge ?),  une femme  au loin, une  amie sans doute, tenant un mouchoir a son nez. La encore,  clans  un  appartement  bombarde,  les grands  yeux  de  deux  gosses,  la  chemise  de l'un relevee sur son petit ventre (I' exces de ces yeux trouble la scene). La enfin,  adosses a un mur  de  maison,  trois  sandinistes,  au  bas  du visage  couvert d'un  chiffon  (puanteur?  clan destinite? J e  suis innocent, je ne connais pas les  realites  de  la guerilla);  l'un tient un  fusil au  repos  sur  sa  cuisse  (je  vois  ses  ongles) ; mais  l'autre  main  s'ouvre  et  se  tend,  comme s ~il  expliquait  et  demontrait  quelque  chose. 1\la  regle  fonctionnait  d'autant  mieux  que d'autres  photos  du  meme  reportage  m'arre taient  moins ;  elles  etaient  belles,  disaient bien  la dignite  et l'horreur  de  !'insurrection, mais  elles  ne  comportaient  a  mes  yeux aucune  marque  :  leur  homogeneite  restait culturelle  :  c'etaient des  ((  scenes  »,  un  peu a la Greuze, s'il n'y avait eu l'aprete du sujet.
 
 ---
+
 ## Chapitre 10
 [Version anglaise](../camera-lucida-en/#chapter-10)
 
@@ -193,6 +203,7 @@ faites  de ce champ, et pour ces photos je puis, certes,  eprouver  une  sorte  
 qui  vais  le  chercher  ( comme j'investis  de  ma conscience  souveraine le  champ  du  studium), c'est  lui  qui  part  de  la  scene,  comme  une fleche,  et  vient  me  percer.  Un  mot  existe  en latin  pour  designer  cette  blessure,  cette  pi qure,  cette  marque  faite  par  un  instrument pointu;  ce  mot  m'irait  d'autant  mieux  qu'il renvoie  aussi  a l'idee  de  ponctuation  et  que les  photos  dont je parle  sont  en  effet  comme ponctuees,  parfois  meme  mouchetees,  de  ces points  sensibles ;  precisement,  ces  marques, ces  blessures  sont  des  points.  Ce  second  ele ment  qui  vient  deranger  le  studium, je  l'ap pellerai  done  punctum;  car  punctum,  c'est aussi  :  piqure,  petit trou,  petite  tache,  petite coupure  - et  aussi  coup  de  des.  Le punctum d'une  photo,  c'est  ce  hasard  qui,  en  elle,  me point  (mais  aussi  me  meurtrit,  me  poigne). Ayant ainsi distingue clans la Photographie deux  themes  (car  en  somme  les  photos  que j'aimais  etaient  construites  a la  fac;on  d'une sonate  classique), je pouvais  m'occuper  suc cessivement de l'un et de l'autre.
 
 ---
+
 ## Chapitre 11
 [Version anglaise](../camera-lucida-en/#chapter-11)
 
@@ -201,6 +212,7 @@ Beaucoup  de  photos  sont,  helas,  inertes sous mon regard. Mais meme parmi ce
 entrer en harmonie avec elles, les approuver, les  desapprouver,  mais  toujours  les  com prendre, les discuter en moi-meme, car la cul ture  (dont  releve  le  studium)  est  un  contrat passe  entre  les  createurs  et  les  consomma teurs.  Le  studium  est  une  sorte  d'education (savoir et politesse) qui me permet de retrou ver !'Operator, de vivre les visees qui fondent et animent ses pratiques, mais de les vivre en quelque sorte a l' envers, selon mon vouloir de Spectator. C'est un peu comme sij'avais a lire clans  la  Photographie  les  mythes  du  Photo graphe,  fraternisant  avec  eux,  sans  y  croire tout  a f ait.  Ces  mythes  visent  evidemment ( c' est  a quoi  sert  le  mythe)  a reconcilier  la Photographie  et la societe  (c'est necessaire? - Eh  bien,  oui  : la Photo est dangereuse),  en la dotant de Jonctions, qui sont pour le Photo graphe  autant  d'alibis.  Ces  fonctions  sont : informer,  representer,  surprendre,  faire signifier,  donner  envie.  Et  moi,  Spectator,  je les  reconnais  avec  plus  ou  moins  de  plaisir  : j'y investis mon studium (qui n'estjamais ma jouissance ou ma douleur).
 
 ---
+
 ## Chapitre 12
 [Version anglaise](../camera-lucida-en/#chapter-12)
 
@@ -211,6 +223,7 @@ tr  Le photographe  m 'apprend comment  s 'habillent  Les  Russes : je  note  la
 a telle OU  telle epoque? Cela, la Photographie peut me le  dire, beaucoup mieux que les por traits  peints.  Elle  me  permet d'acceder a un infra-savoir;  elle  me  fournit  une  collection d'objets partiels et peut flatter en moi un cer tain fetichisme  : car il y a  un «  moi  »  qui aime le  savoir, qui eprouve a son egard comme un gout  amoureux.  De  la  meme  fa;on,  j' aime certains traits biographiques qui,  dans la vie d'un  ecrivain,  m'enchantent  a l'egal  de  cer taines  photographies ;  j' ai  appele  ces  traits des  « biographemes » ;  la  Photographie  a  le meme  rapport  a  l'Histoire  que  le  biogra pheme a la biographie.
 
 ---
+
 ## Chapitre 13
 [Version anglaise](../camera-lucida-en/#chapter-13)
 
@@ -223,6 +236,7 @@ ments  et  des  jeux  de  lumiere.  La  camera obscura,  en  somme,  a  donne  a
 
 
 ---
+
 ## Chapitre 14
 [Version anglaise](../camera-lucida-en/#chapter-14)
 
@@ -235,6 +249,7 @@ apparence a  ma mesure).  Une quatrieme sur prise  est celle  que le  photograph
 sible;  a  !'extreme, il  doit defier celles  de l'in teressant :  la  photo  devient    surprenante » des  lors qu'on ne  sait pas pourquoi elle  a  ete prise ;  quel  motif et quel  interet  a  photogra phier  un  nu  a  contre-jour  dans  !'embrasure d'une  porte,  l'avant  d'une  vieille  auto  dans l 'herbe, un cargo a  quai, deux banes dans une prairie,  des  fesses  de  femme  devant  une fenetre  rustique,  un  reuf  sur  un  ventre  nu (photos  primees a un  concours  d'amateurs)? Dans  un  premier  temps,  la  Photographie, pour  surprendre,  photographie  le  notable ; mais bientot, par un renversement connu, elle decrete  notable  ce  qu'elle  photographie.  Le «  n 'importe  quoi  »  devient  alors  le  comble sophistique  de  la  valeur.
 
 ---
+
 ## Chapitre 15
 [Version anglaise](../camera-lucida-en/#chapter-15)
 
@@ -250,9 +265,8 @@ ir  Les  nazis  censurerent  Sander parce  que  ses  visages  du  temps ne  repo
 
 ment efficace,  a cause  de  sa subtilite et de  sa qualite  esthetique. Si  l'on  excepte  le  domaine  de  la Publicite, OU  le  sens  ne  doit  etre  clair  et distinct qu' en raison de  sa nature mercantile, la semiologie de  la Photographie est done  limitee  aux per formances  admirables  de  quelques  portrai tistes.  Pour  le  reste,  pour  le  tout-venant  des «  bonnes »  photos,  tout ce  qu 'on peut dire  de mieux, c'est que l'objet parle, il induit, vague ment,  a penser.  Et encore:  meme  cela risque d'etre  senti  comme  dangereux.  A  la  limite, point  de  sens  du  tout,  c'est  plus  sur:  les redacteurs  de  Life  refuserent  les  photos  de Kertesz,  a son  arrivee  aux  Etats-Unis,  en 193 7, parce que, dirent-ils,  ses images «  par laient trop ))  ;  elles  faisaient  reflechir'  sugge raient un  sens  - un  autre  sens  que  la lettre. Au  fond  la Photographie  est  subversive,  non lorsqu'elle  effraie,  revulse  OU  meme  stigma tise, mais lorsqu' elle est pensive.
 
-
-
 ---
+
 ## Chapitre 16
 [Version anglaise](../camera-lucida-en/#chapter-16)
 
@@ -262,9 +276,8 @@ Une  vieille  maison,  un  porche d'ombre, des tuiles,  une  decoration  arabe  
 
 bien  en  moi-meme,  n 'est  ni  omr1que  (je  ne reve  pas  d'un  site  extravagant)  ni  empirique (je ne cherche pas a acheter une maison selon les  vues  d'un  prospectus  d'agence  immobi liere); il est fantasmatique, releve d'une sorte de  voyance  qui  semble  me  porter  en  avant, vers  un  temps  utopique,  ou  me  reporter  en arriere,  je  ne  sais  ou  de  moi-meme :  double mouvement  que  Baudelaire  a  chante  clans !'Invitation  au  Voyage  et  la  Vie  Anterieure. Devant ces  paysages  de  predilection,  tout se passe COmme  sij'etais SUr  d'y avoir ete  OU  de devoir y  aller. Or Freud dit du corps maternel qu'« il n'est point d'autre lieu  dont  on puisse dire  avec  autant de  certitude  qu'on  y  a  deja ete  ».  Telle  serait  alors  !'essence  du  paysage (choisi  par  le  desir):  heimlich,  reveillant  en moi la Mere (nullement inquietante). Chevrier Thihaudeau
 
-
-
 ---
+
 ## Chapitre 17
 [Version anglaise](../camera-lucida-en/#chapter-17)
 
@@ -275,6 +288,7 @@ etre banale, l' ((  unite ))  de la composition etant la premiere regle de la rh
 Comme une vitrine qui ne montrerait, eclaire, qu 'un  seul joyau,  elle  est tout entiere  consti tuee par la presentation d'une seule  chose, le sexe  : jamais d'objet second,  intempestif, qui vienne cacher a moitie, retarder OU  distraire. Preuve a contrario  : Mapplethorpe fait passer ses gros plans de sexes, du pornographique a l' erotique, en photographiant de tres pres les mailles  du  slip  :  la  photo  n' est  plus  unaire, puisque je m'interesse au grain du tissu.
 
 ---
+
 ## Chapitre 18
 [Version anglaise](../camera-lucida-en/#chapter-18)
 
@@ -282,9 +296,8 @@ Dans  cet  espace tres  habituellement unaire,  parfois  (mais,  helas,  raremen
 
 liaison entre le  studium et le punctum ( quand ii  se  trouve  la).  11  s'agit  d'une  co-presence, c' est  tout  ce  qu 'on  peut  dire  :  les  bonnes sreurs    se  trouvaient  la »,  passant  au  fond, quand  Wessing  a  photographie  les  soldats nicaraguayens ;  du  point de  vue  de  la realite (qui  est  peut-etre  celui  de  I' Operator),  toute une  causalite  explique  la  presence  du «  detail »  :  l'Eglise  est  implantee  dans  ces pays  d' Amerique  latine,  les  bonnes  sreurs sont  des  infirmieres,  on  les  laisse  circuler, etc. ;  mais  de mon point de vue  de  Spectator, le  detail  est donne par chance et pour rien ; le tableau  n' est  en  rien  «  compose »  selon  une logique  creative ;  la  photo  sans  doute  est duelle, mais cette dualite n'est le moteur d'au cun    developpement  »,  comme  il  se  passe dans  le  discours  classique.  Pour  percevoir le punctum,  aucune  analyse  ne  me  serait  done utile  (mais  peut-etre,  on  le  verra,  parfois,  le souvenir)  :  ii  suffit que  l'image soit suffisam ment grande, que je n' aie pas a la scruter ( cela ne  servirait  a  rien),  que,  donnee  en  pleine page,  je  la  re;oive  en  plein  visage.
 
-
-
 ---
+
 ## Chapitre 19
 [Version anglaise](../camera-lucida-en/#chapter-19)
 
@@ -300,9 +313,8 @@ cet «  reil qui pense » et me fait ajouter quelque chose  a la  photo,  c'est 
 
 If  Je  reconnais  de  tout  mon  corps les  bouryades  que j'ai traversees lors  d'anciens  voyages en  Honyrie  et  en  Roumanie ...  »
 
-
-
 ---
+
 ## Chapitre 20
 [Version anglaise](../camera-lucida-en/#chapter-20)
 
@@ -311,6 +323,7 @@ Certains details pourraient me  «  poindre ». S' ils  ne  le  font  pas,  c'es
 ment  ne  faut-il  pas  qu 'il  le  soit;  il  se  trouve dans  le  champ  de  la  chose  photographiee comme  un  supplement  a  la fois  inevitable  et gracieux ;  il  n' atteste  pas  obligatoirement l'art du photographe; il dit seulement ou bien que  le  photographe  se  trouvait  la,  ou  bien, plus  pauvrement encore, qu 'il ne pouvait pas ne pas photographier l'objet partiel en meme temps  que  l'objet  total  (comment  Kertesz aurait-il  pu  ((  separer ))  la chaussee du violo neux  qui  s'y promene ?).  La voyance du  Pho tographe  ne  consiste pas  a  ((  voir ))  mais a  se trouver  la.  Et  surtout,  imitant  Orphee,  qu 'il ne  se  retourne  pas  sur ce  qu 'il  conduit et me donne!
 
 ---
+
 ## Chapitre 21
 [Version anglaise](../camera-lucida-en/#chapter-21)
 
@@ -325,6 +338,7 @@ un  detail  (a  un  detonateur),  une  explosion f ait une  petite  etoile a la 
 
 
 ---
+
 ## Chapitre 22
 [Version anglaise](../camera-lucida-en/#chapter-22)
 
@@ -341,6 +355,7 @@ d'or tresse)  que j'avais toujours vu porte par une  personne  de  ma  famille, 
 effort  de  silence  (fermer  les  yeux,  c'est faire parler  l'image  dans  le  silence).  La  photo  me touche si je la retire de son bla-bla ordinaire  : «  Technique  >>,  «  Realite  »,  «  Reportage  », «  Art  »,  etc.  :  ne  rien  dire,  fermer  les  yeux, laisser le detail remonter seul a  la conscience affective.
 
 ---
+
 ## Chapitre 23
 [Version anglaise](../camera-lucida-en/#chapter-23)
 
@@ -359,6 +374,7 @@ fetiche ),  encense  comme  un  dieu  qui  ne  sort pas  de  sa  niche ;  pour  
 question de  «  chance  »  :  le photographe a  fixe la main  du  garc;on  (Mapplethorpe  lui-meme, je  crois)  clans  son  hon  degre  d'ouverture,  sa densite  d'abandon  :  quelques  millimetres  de plus ou de moins, et le corps devine n'eut plus ete  offert  avec  bienveillance  (le  corps  porno graphique, compact, se montre, il ne se donne pas,  en  lui  aucune  generosite)  :  le  Photo graphe  a  trouve  le  bon  moment,  le  kairos du desir.
 
 ---
+
 ## Chapitre 24
 [Version anglaise](../camera-lucida-en/#chapter-24)
 
@@ -366,9 +382,8 @@ Chemin ant ainsi  de  photo  en photo  (a vrai dire, toutes  publiques,  jusqu'a
 
 l'universel. Je devais descendre davantage en moi-meme pour trouver !'evidence de la Pho tographie,  cette  chose  qui  est  vue  par  qui conque regarde une photo, et qui la distingue a ses  yeux  de  toute  autre  image.  Je  devais
 
-
-
 ---
+
 ## Chapitre 25
 [Version anglaise](../camera-lucida-en/#chapter-25)
 
@@ -377,6 +392,7 @@ Or,  un  soir  de  novembre,  peu  de  temps apres la mort de ma mere, je rangea
 excepte  celle  que j'avais publiee,  ou l'on voit ma  mere  jeune  marcher  sur  une  plage  des Landes et ouje « retrouvais » sa demarche, sa sante,  son  rayonnement  - mais  non  son visage, trop lointain -, ces photos que j'avais d'elle, je ne pouvais meme pas dire que je les aimais  :  je  ne  me  mettais  pas  a les  contem pler, je ne m'abimais pas en elles. Je les egre nais,  mais  aucune  ne me  paraissait vraiment «  bonne  »  :  ni  performance  photographique, ni  resurrection  vive  du  visage  aime.  Si  je venais  un  jour a les  montrer  a des  am1s,  Je pouvais douter qu'elles leur parlent.
 
 ---
+
 ## Chapitre 26
 [Version anglaise](../camera-lucida-en/#chapter-26)
 
@@ -386,9 +402,8 @@ avant que je puisse  me  souvenir d'elle.  II  y a une  sorte de  stupefaction a
 
 Ainsi, la vie de quelqu 'un dont I' existence a precede d'un  peu la  notre  tient enclose dans sa particularite la tension meme de l'Histoire, son  partage.  L'Histoire  est  hysterique  :  elle ne se constitue que si on la regarde - et pour la regarder, il faut en etre exclu.  Comme rune vivante,  je  suis  le  contraire  meme  de  l'His toire,  ce  qui la clement, la detruit au profit de ma  seule  histoire  (impossible  pour  moi  de croire  aux  « temoins » ;  impossible  du  moins d'en etre un; Michelet n'a pour ainsi dire rien pu ecrire sur son propre temps).  Le  temps OU ma mere a  vecu avant moi, c' est ;a,  pour moi, l'Histoire  (c'est  d'ailleurs  cette  epoque  qui m'interesse  le  plus,  historiquement).  Aucune anamnese  ne  pourra jamais  me  faire  entre voir  ce  temps a partir de  moi-meme  (c'est la definition  de  l' anamnese)  -alors  que,  con templant une  photo  ou  elle  me  serre,  enf ant, contre elle, je puis reveiller en moi la douceur froissee  du  crepe  de  Chine  et le  parfum de  la poudre de riz.
 
-
-
 ---
+
 ## Chapitre 27
 [Version anglaise](../camera-lucida-en/#chapter-27)
 
@@ -399,6 +414,7 @@ devant  telle  photo  «  c' est  presque  elle ! » m' etait plus dechirant que
 etait  deja  une  sorte  de  mediation  qui  me conduisait  vers  une  identite  essentielle,  le genie  du  visage  aime.  Et puis,  si  imparfaites fussent-elles,  chacune  de  ces  photos  mani festait  le  sentiment  juste  qu'elle  avait  du eprouver  chaque  fois  qu 'elle  s 'etait  ((  laisse )) photographier :  ma  mere  ((  se  pretait ))  a  la photographie,  craignant  que  le  refus  ne  se tournat  en  ((  attitude ))  ;  elle  reussissait  cette epreuve de se placer devant l' obj ectif ( acte ine vitable)  avec  discretion  (mais  sans  rien  du theatre  contracte  de  l'humilite  ou  de  la bou derie);  car  elle  savait  toujours  substituer  a une  valeur  morale,  une  valeur  superieure, une  valeur  civile.  Elle  ne  se  debattait  pas avec  son  image,  comme  je  le  fais  avec  la mienne  : elle ne se supposait pas.
 
 ---
+
 ## Chapitre 28
 [Version anglaise](../camera-lucida-en/#chapter-28)
 
@@ -415,6 +431,7 @@ d'autres)  :  qu'elle  ne  me  fit  jamais,  de  toute notre vie commune, une se
 avait  produit  une  photo  surerogatoire,  qui tenait plus  que  ce  que  l'etre  technique  de  la photographie  peut  raisonnablement  promet tre.  Ou  encore  (car  je  cherche  a  dire  cette verite),  cette Photographie du Jardin d'Hiver etait  pour  moi  comme  la  derniere  musique qu'ecrivit  Schumann  avant  de  sombrer,  ce premier  Chant  de  /'Aube,  qui  s'accorde  a  la fois  a  l' etre de ma mere et au chagrin que j' ai de sa mort ; je ne pourrais dire cet accord que par  une  suite  infinie  d'adjectifs;  j'en  fais l'economie,  persuade  cependant  que  cette photographie  rassemblait  tous  les  predicats possibles  dont  se  constituait  l'etre  de  ma mere, et dont, inversement, la suppression OU !'alteration  partielle  m'avait  renvoye  aux photos  d'elle  qui  m'avaient laisse  insatisfait. Ces  photos-la,  que  la phenomenologie  appel lerait  des  ob jets  ((  quelconques )) '  n' etaient qu' analogiques, suscitant seulement son iden tite,  non  sa verite;  mais  la Photographie  du Jardin d'Hiver, elle, etait bien essentielle, elle accomplissait  pour  moi,  utopiquement,  la science impossible de l'etre unique.
 
 ---
+
 ## Chapitre 29
 [Version anglaise](../camera-lucida-en/#chapter-29)
 
@@ -424,9 +441,8 @@ Ce  mouvement de  la Photo  (de  l' ordre des photos), je l'ai vecu clans la rea
 
 :Vlor in . 2/l I sa  musique.  Elle,  si  forte,  qui  etait  ma  Loi interieure, je la vivais  pour finir  comme mon enfant  feminin.  Je  resolvais  ainsi,  a  ma maniere, la Mort.  Si,  comme l'ont dit tant de philosophes,  la  Mort  est  la  lure  victoire  de l'espece,  si  le  particulier meurt pour la satis faction  de  l 'universel,  si,  a pres  s 'etre  repro duit  comme  autre  que  lui-meme,  l'individu meurt,  s'etant  ainsi  nie  et  depasse,  moi  qui n'avais pas procree, j'avais, clans  sa maladie meme,  engendre  ma  mere.  Elle  morte,  je n'avais  plus  aucune  raison  de  m'accorder a  la  marche  du  Vivant  superieur  (l'espece). Ma  particularite  ne  pourrait  jamais  plus s'universaliser  (sinon,  utopiquement,  par l'ecriture,  dont  le  projet,  des  lors,  devait devenir  !'unique  but  de  ma  vie).  Je  ne  pou vais plus qu'attendre ma mort totale, indialec tique. Voila ce  que je lisais  clans  la Photographie du  Jardin  d'Hiver.
 
-
-
 ---
+
 ## Chapitre 30
 [Version anglaise](../camera-lucida-en/#chapter-30)
 
@@ -447,6 +463,7 @@ ma  situation  :  commentant  Freud  (Moise), J. J .  Goux  explique  que  le ju
 Proust, II, 759 tenais  pas  seulement  a  souffrir,  mais  a  res pecter  I' originalite  de  ma  souffrance  >>  ;  car cette  originalite  etait  le  reflet  de  ce  qu 'il  y avait en elle d'absolument irreductible, et par la meme  perdu  d' un  seul  coup  a  jamais.  On dit  que  le  deuil,  par  son  travail  progressif, efface  lentement la douleur ; je ne pouvais, je ne puis le  croire; car, pour moi, le Temps eli mine !'emotion  de  la perte (je ne pleure pas), c'est tout.  Pour le  reste,  tout est reste  immo bile.  Car  ce  que j'ai perdu,  ce  n 'est pas  une Figure (la Mere), mais un etre; et pas un etre, mais  une  qualite ( une  ame)  :  non pas I' indis pensable,  mais  l'irrempla~able .  J e  pouvais vivre  sans la Mere (nous le  faisons tous, plus ou  moins  tard) ;  mais  la  vie  qui  me  restait serait a  coup sur et jusqu, a  la fin inqualifiable (sans qualite).
 
 ---
+
 ## Chapitre 32
 [Version anglaise](../camera-lucida-en/#chapter-32)
 
@@ -459,6 +476,7 @@ eclaire des nuances), cela se dirait sans doute : «  interfuit ))  :  cela  que
 supposer  qu 'ii  me  parut  «  vrai »,  ne  pouvait m ' imposer  que  son  referent  eut  reellement existe.
 
 ---
+
 ## Chapitre 33
 [Version anglaise](../camera-lucida-en/#chapter-33)
 
@@ -470,9 +488,8 @@ leurre  qui  nous  f ait  attribuer  au  Reel  une valeur  absolument  superieur
 
 Je  repense  au  portrait  de  William  Casby, «  ne  esclave  »,  photographie  par  Avedon.  Le noeme est ici intense ; car celui que je vois la a ete  esclave  :  il  certifie  que  l'esclavage  a existe, pas si loin de nous ; et il le certifie, non par des temoignages historiques, mais par un ordre nouveau  de preuves, experimentales en quelque  sorte,  bien  qu'il  s'agisse  du  passe, et  non  plus  seulement  induites  :  la  preuve selon-saint-Thomas-voulant-toucher-le-Christ ressuscite.  J e  me  souviens  avoir  garde  tres longtemps,  decoupee  clans  un  illustre,  une photographie - perdue depuis,  comme toutes les  choses  trop  bien  rangees - qui  represen tait une  vente  d'esclaves  :  le  maitre,  en  cha peau, debout, les esclaves, en pagne, as sis. J e dis bien  : une photographie - et non une gra vure; car mon horreur et ma fascination d'en fant venaient de  ceci  : qu 'il etait sur que cela avait ete  : pas question d'exactitude, mais de realite  :  l'historien  n 'etait plus  le  mediateur, l'esclavage etait donne sans mediation, le fait etait etabli sans methode.
 
-
-
 ---
+
 ## Chapitre 34
 [Version anglaise](../camera-lucida-en/#chapter-34)
 
@@ -482,9 +499,8 @@ phiee  a  mon  regard  :  la  lumiere,  quoique impalpable, est bien ici un mili
 
 homme et une femme, colories apres coup par le  miniaturiste  attache  a !'atelier  du  photo graphe  :  j'ai  toujours  !'impression  (peu importe ce qui se passe reellement) que, de la meme fa; on, dans toute photographie, la cou leur  est un  enduit  appose  ulterieurement sur la  verite  originelle  du  Noir-et-Blanc.  La Couleur est pour moi un postiche, un fard (tel celui  dont  on  peint les  cadavres ).  Car ce  qui m'importe,  ce  n 'est pas la «  vie  »  de  la photo (notion  purement ideologique),  mais la certi tude  que  le  corps photographie vient me tou cher  de  ses  propres  rayons,  et  non  d' une lumiere  surajoutee. (Ainsi,  la Photographie du Jardin d'Hiver, si  pale  soit-elle,  est  pour  moi  le  tresor  des rayons  qui  emanaient de  ma mere enfant,  de ses  cheveux,  de  sa  peau,  de  sa  robe,  de  son regard ,  ce  }our-la.)
 
-
-
 ---
+
 ## Chapitre 35
 [Version anglaise](../camera-lucida-en/#chapter-35)
 
@@ -499,6 +515,7 @@ baigner  sur  la  Grande  Plage,  ou  l'un  de  ces dimanches matins ou, venant 
 Bouvard  et  Pecuchet  s'interrogeant  sur  le ciel,  les  etoiles,  le  temps,  la vie,  l'infini,  etc. C' est  ce  genre  de  questions  que  me  pose  la Photographie  :  questions  qui  relevent  d'une metaphysique    bete »,  OU  simple  (Ce  SOnt  les reponses  qui  sont  compliquees)  :  probable ment la vraie metaphysique.
 
 ---
+
 ## Chapitre 36
 [Version anglaise](../camera-lucida-en/#chapter-36)
 
@@ -517,6 +534,7 @@ Beceyro jours  codee),  rien  que  de  l'artifice  :  Thesis, non  Physis;  la P
 tographie  porte,  non  sur l'objet,  mais  sur le temps.  D'un point de vue phenomenologique, clans la Photographie, le pouvoir d'authentifi cation prime le pouvoir de representation.
 
 ---
+
 ## Chapitre 37
 [Version anglaise](../camera-lucida-en/#chapter-37)
 
@@ -531,6 +549,7 @@ et,  par  mon  inattention  meme,  lui  f aisant rejoindre  une  tout  autre  cl
 de  leurs  souvenirs  d'enfance;  ils  en  avaient; mais moi,  qui venais de regarder mes photos passees,  je  n'en  avais  plus.  Entoure  de  ces photographies, je ne pouvais plus me consoler des vers de  Rilke  : « Aussi doux que le  souve nir,  les  mimosas  baignent  la  chambre »  :  la Photo  ne  « baigne »  pas  la  chambre  :  point d'odeur,  point  de  musique,  rien  que  la  chose exorbitee.  La Photographie est violente  : non parce  qu' elle  montre  des  violences,  mais parce qu' a chaque fois  elle  emplit de force  la vue, et qu'en elle rien ne peut se refuser, ni se transformer  ( qu' on  puisse  parfois  la  dire douce ne contredit pas sa violence ; beaucoup disent  que  le  sucre  est doux ;  mais  moi, je le trouve violent, le sucre).
 
 ---
+
 ## Chapitre 38
 [Version anglaise](../camera-lucida-en/#chapter-38)
 
@@ -544,9 +563,8 @@ quee  par  la  lumiere,  l'humidite,  elle  palit, s'extenue,  disparait;  ii  n
 
 aussi.  11  a  deja  disparu.  J'en  suis, je ne  sais pourquoi,  l'un  des  derniers  temoins  (temoin de  l'Inactuel),  et  ce  livre  en  est  la trace  ar chaique. Qu'est-ce  qui  va  s'abolir  avec  cette  photo qui jaunit, palit,  s'efface et sera un jour jetee aux  ordures,  sinon  par  moi  -trop  supersti tieux  pour  cela - du  moins  a  ma mort?  Pas seulement  la  «  vie  11 ( ceci  fut  vivant,  pose vivant  devant l'objectif),  mais  aussi,  parfois, comment  dire?  l'amour.  Devant  la  seule photo  ou  je  vois  mon  pere  et  ma  mere ensemble,  eux  dont je  sais  qu'ils  s'aimaient, je pense  :  c'es't  l'amour comme  tresor qui va disparaitre  a  jamais; car lorsque je ne  serai plus  la,  personne  ne  pourra  plus  en  temoi gner  :  il  ne  restera  plus  que  l'indifferente Nature.  C'est  la  un  dechirement  si  aigu,  si intolerable, que , seul contre son siecle, Miche let corn:;ut  l'Histoire  comme  une  Protestation d' amour  :  perpetuer,  non  seulement  la  vie, mais aussi ce qu 'il appelait, clans son vocabu laire, aujourd'hui demode, le Bien, la Justice, l'Unite, etc.
 
-
-
 ---
+
 ## Chapitre 39
 [Version anglaise](../camera-lucida-en/#chapter-39)
 
@@ -559,6 +577,7 @@ le  studium.  Mais  le  punctum,  c'est  :  il  va mourir.  Je  lis  en  meme  t
 mortes  (aujourd'hui),  elles  sont  done  deja mortes (hier). A la limite, point n'est besoin de me  representer  un  corps  pour  que j'eprouve ce  vertige  du  Temps  ecrase.  En  18 50, August  Salzmann  a  photographie,  pres de  Jerusalem,  le  chemin  de  Beith-Lehem ( orthographe du temps)  : rien qu 'un sol pier reux,  des  oliviers ;  mais  trois  temps  tourne boulent  ma  conscience  :  mon  present,  le temps de Jesus  et celui  du photographe, tout cela sous !'instance de la ((  realite ))  - et non plus  a  travers  les  elaborations  du  texte, fictionnel  ou  poetique,  qui,  lui,  n'est jamais crediblejusqu'a la racine.
 
 ---
+
 ## Chapitre 40
 [Version anglaise](../camera-lucida-en/#chapter-40)
 
@@ -571,6 +590,7 @@ toutes les photos de reportage). Chaque photo est lue comme l' apparence privee 
 l'autre  mes  photos;  d'un  cote,  la  noncha lance,  le  glissement,  le  bruit,  l'inessentiel (meme  si j'en suis  abusivement assourdi);  de l'autre,  le  brulant,  le  blesse. (D'ordinaire,  !'amateur  est  defini  comme une  immaturation  de  !'artiste  :  quelqu'un qui  ne  peut  - OU  ne  veut  - Se  hausser  a  la maitrise d'une profession. Mais dans le champ de  la  pratique  photographique,  e'est  !'ama teur,  au  contraire,  qui  est  l'assomption  du professionnel  :  car  c'est  lui  qui  se  tient  au plus  pres  du  noeme  de  la  Photographie.)
 
 ---
+
 ## Chapitre 41
 [Version anglaise](../camera-lucida-en/#chapter-41)
 
@@ -580,9 +600,8 @@ le  visage  de  ma mere  est flou,  pali.  Dans  un premier mouvement, je me sui
 
 toyer la surface de l'image, pour acceder ace qu 'il ya derriere  : scruter veut dire retourner la photo, entrer clans la profondeur du papier, atteindre  sa face  inverse  ( ce qui est cache est pour  nous,  Occidentaux,  plus  « vrai  »  que  ce qui est visible).  Helas, j ' ai beau scruter, je ne decouvre  rien  :  si  j'agrandis,  ce  n 'est  rien d'autre  que  le  grain  du  papier  :  je  defais l'image  au  profit  de  sa  matiere;  et  si  je n 'agrandis  pas,  si  je  me  contente  de  scru ter,  je  n'obtiens  que  ce  seul  savoir,  possede depuis longtemps, des mon premier coup d'reil: que  cela a  effectivement  ete  :  le  tour  d'ecrou n'a rien donne. Devant la Photo du Jardin d'Hi ver, je suis un  mauvais reveur qui tend vaine ment  les  bras  vers  la  possession  de  l'image; je  suis  Golaud  s'ecriant  «  Misere  de  ma vie  I  »,  parce qu'il  ne  saura jamais  la  verite de  Melisande. (Melisande  ne  cache pas, mais elle  ne parle  pas.  Telle  est la  Photo  :  elle  ne sait  dire  ce  qu' elle  donne  a voir.)
 
-
-
 ---
+
 ## Chapitre 42
 [Version anglaise](../camera-lucida-en/#chapter-42)
 
@@ -595,6 +614,7 @@ musique a  quelque chose de spirituel ( dit-on) ; Rossini  semble faux,  rosse (
 Sylvain  n ' est  pas  ainsi.  »  Au  fond,  une  photo ressemble a n 'importe qui, sauf a celui qu' elle represente.  Car  la  ressemblance  renvoie  a l'identite  du  sujet,  chose  derisoire,  purement civile,  penale  meme;  elle  le  donne  ((  en  tant que  lui-meme » ,  alors  que  je  veux  un  sujet tel  qu'en  lui-meme ».  La  ressemblance  me laisse  insatisfait,  et  comme  sceptique  ( c' est bien  cette  deception  triste  que  j'eprouve devant  les  photos  courantes  de  ma  mere - alors  que  la  seule  photo  qui  m' ait  donne l'eblouissement de sa verite, c'est precisement une  photo  perdue,  lointaine,  qui  ne  lui  res semble pas, celle d'une enfant que je n'ai pas connue).
 
 ---
+
 ## Chapitre 43
 [Version anglaise](../camera-lucida-en/#chapter-43)
 
@@ -609,6 +629,7 @@ La  Souche.
 son  ai"eul,  formidable,  monumental, hugolien, tant  il  incarne  la  distance  inhumaine  de  la Souche?
 
 ---
+
 ## Chapitre 44
 11  faut  done  me  rendre  a  cette  loi  :  je  ne puis  approfondir,  percer la Photographie.  Je ne  puis que la balayer du regard, comme une surface etale. La Photographie est plate, clans tous  les  sens  du  mot,  voila  ce  qu 'il  me  faut admettre.  C'est  bien  a  tort  qu'en  raison  de son  origine  technique,  on  l' associe  a  l 'idee d'un  passage obscur (camera obscura).  C'est camera  lucida  qu 'il  faudrait  dire  (tel  etait le nom  de  cet  appareil,  anterieur  a  la  Photo graphie, qui permettait de dessiner un objet a travers  un  prisme,  un  reil  sur  le  modele, l'autre sur le papier); car, du point de vue du regard,  «  !'essence de l'image est d'etre toute dehors,  sans intimite, et cependant plus inac-
 
@@ -617,6 +638,7 @@ Sartre, 21 cessible  et  mysterieuse  que  la pensee  du  for interieur ; sans s
 Mais  aussi,  helas,  c'est  a  proportion  de  sa certitude,  que  je  ne  puis  rien  dire  de  cette photo.
 
 ---
+
 ## Chapitre 45
 [Version anglaise](../camera-lucida-en/#chapter-45)
 
@@ -633,6 +655,7 @@ chose de moral, amenant mysterieusement au visage le  reflet d'une valeur de vie
 N adar  ni  Avedon  n' ont  photographie  ma mere,  la  survie  de  cette  image  a  tenu  au hasard  d'une  vue  prise  par  un  photographe de  campagne,  qui,  mediateur  indifferent, mort  lui-meme  depuis,  ne  savait  pas  que  ce qu 'il  fixait,  c' etait  la  verite  -la verite  pour moi.
 
 ---
+
 ## Chapitre 46
 [Version anglaise](../camera-lucida-en/#chapter-46)
 
@@ -649,6 +672,7 @@ vision,  semble  retenu  par quelque  chose  d'in terieur.  Ce  jeune  gar;on  p
 Calvino J . Kristeva, Ribettes sur  combien ?)  que  j'ai  trouve  « la  vraie photographie  totale  »,  elle  accomplit  la confusion inou1e de la realite («  Cela a ete »)et de  la  verite  ( « C' est  r;a I ») ;  elle  devient a la fois  constative  et  exclamative ;  elle  porte l'effigie  a ce  point fou  OU  l'affect (l'amour, la compassion,  le  deuil,  l' elan,  le  desir)  est garant de  l'etre.  Elle  approche  alors,  effecti vement, de la folie, rejoint la ((  verite folle  ».
 
 ---
+
 ## Chapitre 47
 [Version anglaise](../camera-lucida-en/#chapter-47)
 
@@ -660,9 +684,8 @@ la  minceur' m'ennuyait; mais lorsque Casanova s'est mis a danser  avec  la jeun
 
 bi en le  nom. J e  commern;ais par I' appeler  : la souffrance  d'amour.  N'etais-je  pas,  en somme,  amoureux  de  I' automate  fellinien? N'est-on  pas  amoureux  de  certaines  photo graphies?  (Regardant  des  photos  du  monde proustien,  je  tombe  amoureux  de  Julia  Bar tet,  du  due  de  Guiche.)  Pourtant,  ce  n'etait pas  tout  a fait  c;a.  C'etait  une  vague  plus ample  que le  sentiment  amoureux.  Dans !'amour souleve par la Photographie (par cer taines  photos),  une  autre  musique  se  faisait entendre,  au  nom  bizarrement  demode  :  la Pitie.  Je  rassemblais  clans  une  derniere pensee  les  images  qui  m'avaient  «point» telle  est  !'action  du  punctum), (puisque comme  celle  de  la negresse  au mince  collier, aux souliers a brides. A travers chacune d'elles, infailliblement,  je  passais  outre  l'irrealite de  la  chose  representee,  j'entrais  follement clans  le  spectacle,  clans  l'image, entourant de mes  bras  ce  qui  est  mort,  ce  qui  va mourir, comme  le  fit  Nietzsche,  lorsque  le  3  janvier 1889, il  se jeta en pleurant au cou d'un cheval martyrise  :  devenu  fou  pour  cause  de  Pitie. 179 Podach,
 
-
-
 ---
+
 ## Chapitre 48
 [Version anglaise](../camera-lucida-en/#chapter-48)
 
