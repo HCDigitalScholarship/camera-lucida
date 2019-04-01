@@ -2,7 +2,6 @@
 layout: narrative
 title: Camera Lucida (English)
 author: Roland Barthes
-editor: Alex Gil
 toc:
 - Chapter 1
 - Chapter 2
